@@ -1,1 +1,1 @@
-# Hello, I'm Milan Gharti :3
+# Hello, I'm Milan Gharti 
